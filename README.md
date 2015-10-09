@@ -1,1 +1,1 @@
-GoldenOne is from http://freemiumthemes.net/product/golden-portfolio-psd-template/
+Psd-template GoldenOne is from http://freemiumthemes.net/product/golden-portfolio-psd-template/
